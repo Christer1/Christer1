@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨‍🦰 I am Olawale Yussuph, a web and mobile application developer<br>💼 I'm looking to collaborate on Innovative tech solutions, fintech platforms, and API integrations.<br>📥 Email: yussupholawale2017@gmail.com<br>⚡️ I have a passion for both tech, balancing innovation with a strong sense of purpose.
+👨‍🦰 I am Olawale Yussuph, a web and mobile application developer<br>💼 I'm looking to collaborate on Innovative tech solutions, fintech platforms, and API integrations.<br>⚡️ I have a passion for both tech, balancing innovation with a strong sense of purpose.<br>📥 Email: yussupholawale2017@gmail.com
 
 
 ## 🌐 Socials:
